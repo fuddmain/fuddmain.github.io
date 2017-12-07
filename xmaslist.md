@@ -11,7 +11,7 @@
 * [Diamine Ink - Dark Forest](https://www.jetpens.com/Diamine-Dark-Forest-Ink-150th-Anniversary-40-ml-Bottle/pd/21318)
 * [Diamine Ink - Bilberry](http://www.jetpens.com/Diamine-Fountain-Pen-Ink-80-ml-Bilberry-Blue/pd/8770)
 * [Diamine Ink - Florida Blue](http://www.jetpens.com/Diamine-Fountain-Pen-Ink-80-ml-Florida-Blue/pd/7757)
-* [Diamine Ink - Bload Orange](https://www.jetpens.com/Diamine-Blood-Orange-Ink-150th-Anniversary-40-ml-Bottle/pd/21315)
+* [Diamine Ink - Blood Orange](https://www.jetpens.com/Diamine-Blood-Orange-Ink-150th-Anniversary-40-ml-Bottle/pd/21315)
 
 ## Books
 * [Meathead: The Science of Great Barbecue and Grilling](http://a.co/d9PPvYb) by Meathead Goldwyn
