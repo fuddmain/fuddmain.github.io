@@ -5,6 +5,7 @@
 * Musics Lessons
 * [Slow 'N Sear XL](https://abcbarbecue.com/product/slow-n-sear-xl/)
 * [Nitecore TINI 380 Lumens USB Rechargeable Flashlight](http://a.co/hQduTIc)
+* [Radiant Light Mill - Solar Radiometer](http://www.thinkgeek.com/product/jjrm/?cpg=edm_101106875)
 * [iPad Pro (12.9-inch; 256GB; Space Gray)](https://www.apple.com/shop/buy-ipad/ipad-pro/12.9-inch-display-256gb-space-gray-wifi)
 
 ## Pens, Ink, & Paper
