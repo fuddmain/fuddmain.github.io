@@ -18,7 +18,7 @@
 * [The Artful Wooden Spoon: How to Make Exquisite Keepsakes for the Kitchen](http://a.co/7e72if2) by Joshua Vogel
 * [The Comic Book Story of Beer](http://a.co/goBCn4w)
 * [March (Trilogy Slipcase Set)](http://a.co/hM27i8d) by John Lewis
-* [Usagi Yojimbo volume 30: Thieves and Spies](http://a.co/1ww0G8W) by Stan Sakai
+* [Usagi Yojimbo volume 31: The Hell Screen](http://a.co/0YmoQuV) by Stan Sakai
 * [MetaMaus: A Look Inside a Modern Classic, Maus](http://a.co/9fPPbio) by Art Spiegelman
 * [Boxers & Saints Boxed Set](http://amzn.com/1596439246) by Gene Luen Yang
 * [Building Stories](http://amzn.com/0375424334) by Chris Ware
