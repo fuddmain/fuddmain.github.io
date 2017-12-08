@@ -5,13 +5,18 @@
 * Musics Lessons
 * [Slow 'N Sear XL](https://abcbarbecue.com/product/slow-n-sear-xl/)
 * [Nitecore TINI 380 Lumens USB Rechargeable Flashlight](http://a.co/hQduTIc)
+* [iPad Pro (12.9-inch; 256GB; Space Gray)](https://www.apple.com/shop/buy-ipad/ipad-pro/12.9-inch-display-256gb-space-gray-wifi)
 
-## Pens & Ink
+## Pens, Ink, & Paper
 * [Lamy Safari Fountain Pen - Petrol Blue - Medium Nib](http://a.co/9dTwvAq)
+* [TWSBI Vac Mini - Smoke - 1.1mm Stub](https://www.gouletpens.com/twsbi-vac-mini-fountain-pen-smoke-1.1mm-stub/p/TW-M7445940)
 * [Diamine Ink - Dark Forest](https://www.jetpens.com/Diamine-Dark-Forest-Ink-150th-Anniversary-40-ml-Bottle/pd/21318)
+* [TWSBI Mini - Classic - 1.1mm Stub](https://www.gouletpens.com/twsbi-mini-fountain-pen-classic-stub/p/TW-M7443310)
 * [Diamine Ink - Bilberry](http://www.jetpens.com/Diamine-Fountain-Pen-Ink-80-ml-Bilberry-Blue/pd/8770)
 * [Diamine Ink - Florida Blue](http://www.jetpens.com/Diamine-Fountain-Pen-Ink-80-ml-Florida-Blue/pd/7757)
 * [Diamine Ink - Blood Orange](https://www.jetpens.com/Diamine-Blood-Orange-Ink-150th-Anniversary-40-ml-Bottle/pd/21315)
+* [Montblanc Ink - Permanent Blue](http://a.co/ev2DL8b)
+* [Leuchtturm1917 5 Year Memory Notebook - A5 - Black](https://www.gouletpens.com/leuchtturm1917-some-lines-a-day-5-year-memory-notebook-a5-black/p/LT-343552)
 
 ## Books
 * [Meathead: The Science of Great Barbecue and Grilling](http://a.co/d9PPvYb) by Meathead Goldwyn
