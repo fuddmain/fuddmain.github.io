@@ -7,6 +7,8 @@
 * [Nitecore TINI 380 Lumens USB Rechargeable Flashlight](http://a.co/hQduTIc)
 * [Radiant Light Mill - Solar Radiometer](http://www.thinkgeek.com/product/jjrm/?cpg=edm_101106875)
 * [Star Wars Geeki Tikis - Series 1](http://www.thinkgeek.com/product/irvt/)
+* [Official Liverpool FC Football Crest Socks](http://a.co/g0wcesH)
+* [Anfield Street Sign - Liverpool FC](http://a.co/66FpduP)
 * [iPad Pro (12.9-inch; 256GB; Space Gray)](https://www.apple.com/shop/buy-ipad/ipad-pro/12.9-inch-display-256gb-space-gray-wifi)
 
 ## Pens, Ink, & Paper
