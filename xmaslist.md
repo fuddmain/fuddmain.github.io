@@ -22,9 +22,11 @@
 
 ## Books
 * [Meathead: The Science of Great Barbecue and Grilling](http://a.co/d9PPvYb) by Meathead Goldwyn
+* [The Elements of Pizza](http://a.co/ffp59kb) by Ken Forkish
 * [The Artful Wooden Spoon: How to Make Exquisite Keepsakes for the Kitchen](http://a.co/7e72if2) by Joshua Vogel
-* [March (Trilogy Slipcase Set)](http://a.co/hM27i8d) by John Lewis
 * [Usagi Yojimbo volume 31: The Hell Screen](http://a.co/0YmoQuV) by Stan Sakai
+* [Birds from Bricks](http://a.co/ev6C25w) by Thomas Poulsom
+* [March (Trilogy Slipcase Set)](http://a.co/hM27i8d) by John Lewis
 * [MetaMaus: A Look Inside a Modern Classic, Maus](http://a.co/9fPPbio) by Art Spiegelman
 * [Boxers & Saints Boxed Set](http://amzn.com/1596439246) by Gene Luen Yang
 * [Building Stories](http://amzn.com/0375424334) by Chris Ware
