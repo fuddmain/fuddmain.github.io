@@ -5,6 +5,8 @@
 * Musics Lessons
 * [Slow 'N Sear XL](https://abcbarbecue.com/product/slow-n-sear-xl/)
 * [Nitecore TINI 380 Lumens USB Rechargeable Flashlight](http://a.co/hQduTIc)
+* [Titanium Pocket Tool](https://bigidesign.com/collections/pocket-tools/products/titanium-pocket-tool)
+* [Bit Bar: Pocket Screwdriver](https://bigidesign.com/collections/pocket-tools/products/bit-bar?variant=37274054979)
 * [Radiant Light Mill - Solar Radiometer](http://www.thinkgeek.com/product/jjrm/?cpg=edm_101106875)
 * [Star Wars Geeki Tikis - Series 1](http://www.thinkgeek.com/product/irvt/)
 * [Official Liverpool FC Football Crest Socks](http://a.co/g0wcesH)
