@@ -2,7 +2,7 @@
 
 ## Misc.
 * [ThermoWorks Smoke](http://www.thermoworks.com/Smoke)
-* Musics Lessons
+* Music Lessons
 * [Slow 'N Sear XL](https://abcbarbecue.com/product/slow-n-sear-xl/)
 * [Nitecore TINI 380 Lumens USB Rechargeable Flashlight](http://a.co/hQduTIc)
 * [Titanium Pocket Tool](https://bigidesign.com/collections/pocket-tools/products/titanium-pocket-tool)
