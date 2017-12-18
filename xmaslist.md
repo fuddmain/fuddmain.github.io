@@ -5,10 +5,12 @@
 * Musics Lessons
 * [Slow 'N Sear XL](https://abcbarbecue.com/product/slow-n-sear-xl/)
 * [Nitecore TINI 380 Lumens USB Rechargeable Flashlight](http://a.co/hQduTIc)
+* [Stanley Classic One Hand Vacuum Mug (20oz; Green)](http://a.co/iLyU42U)
 * [Titanium Pocket Tool](https://bigidesign.com/collections/pocket-tools/products/titanium-pocket-tool)
 * [Bit Bar: Pocket Screwdriver](https://bigidesign.com/collections/pocket-tools/products/bit-bar?variant=37274054979)
 * [Radiant Light Mill - Solar Radiometer](http://www.thinkgeek.com/product/jjrm/?cpg=edm_101106875)
 * [Star Wars Geeki Tikis - Series 1](http://www.thinkgeek.com/product/irvt/)
+* [Liverpool Liverbird Crest Pin](http://a.co/c81lv4s)
 * [Official Liverpool FC Football Crest Socks](http://a.co/g0wcesH)
 * [Anfield Street Sign - Liverpool FC](http://a.co/66FpduP)
 * [iPad Pro (12.9-inch; 256GB; Space Gray)](https://www.apple.com/shop/buy-ipad/ipad-pro/12.9-inch-display-256gb-space-gray-wifi)
