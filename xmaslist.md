@@ -10,7 +10,6 @@
 * [Star Wars Geeki Tikis - Series 1](http://www.thinkgeek.com/product/irvt/)
 * [Liverpool Liverbird Crest Pin](http://a.co/c81lv4s)
 * [Anfield Street Sign - Liverpool FC](http://a.co/66FpduP)
-* [iPad Pro (12.9-inch; 256GB; Space Gray)](https://www.apple.com/shop/buy-ipad/ipad-pro/12.9-inch-display-256gb-space-gray-wifi)
 
 ## Pens, Ink, & Paper
 * [TWSBI Mini - Classic - 1.1mm Stub](https://www.gouletpens.com/twsbi-mini-fountain-pen-classic-stub/p/TW-M7443310)
