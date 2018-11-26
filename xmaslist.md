@@ -3,22 +3,17 @@
 ## Misc.
 * [Slow 'N Sear XL](https://abcbarbecue.com/product/slow-n-sear-xl/)
 * [TPT Slide: Titanium Pocket Tool (Stonewashed)](https://bigidesign.com/collections/pocket-tools/products/titanium-pocket-tool-slide)
-* [Bit Bar: Pocket Screwdriver](https://bigidesign.com/collections/pocket-tools/products/bit-bar?variant=37274054979)
 * [Radiant Light Mill - Solar Radiometer](http://www.thinkgeek.com/product/jjrm/?cpg=edm_101106875)
-* [Liverpool Liverbird Crest Pin](http://a.co/c81lv4s)
 * [Anfield Street Sign - Liverpool FC](http://a.co/66FpduP)
 
 ## Pens, Ink, & Paper
 * [Leuchtturm1917 5 Year Memory Notebook - A5 - Black](https://www.gouletpens.com/leuchtturm1917-some-lines-a-day-5-year-memory-notebook-a5-black/p/LT-343552)
 
 ## Books
-* [The Elements of Pizza](http://a.co/ffp59kb) by Ken Forkish
 * [Flour Water Salt Yeast](http://a.co/1BA3DfE) by Ken Forkish
-* [The LEGO Trains Book](http://a.co/4Xr1xKZ) by Holger Matthes
-* [The LEGO Architect](http://a.co/ccSp0e3) by Tom Alphin
+* [The Elements of Pizza](http://a.co/ffp59kb) by Ken Forkish
 * [March (Trilogy Slipcase Set)](http://a.co/hM27i8d) by John Lewis
 * [MetaMaus: A Look Inside a Modern Classic, Maus](http://a.co/9fPPbio) by Art Spiegelman
-* [Building Stories](http://amzn.com/0375424334) by Chris Ware
 * [The Comic Book Story of Beer](http://a.co/goBCn4w)
 
 ## Nanoblocks
