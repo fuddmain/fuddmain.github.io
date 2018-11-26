@@ -13,7 +13,6 @@
 * [iPad Pro (12.9-inch; 256GB; Space Gray)](https://www.apple.com/shop/buy-ipad/ipad-pro/12.9-inch-display-256gb-space-gray-wifi)
 
 ## Pens, Ink, & Paper
-* [Lamy Safari Fountain Pen - Petrol Blue - Medium Nib](http://a.co/9dTwvAq)
 * [TWSBI Mini - Classic - 1.1mm Stub](https://www.gouletpens.com/twsbi-mini-fountain-pen-classic-stub/p/TW-M7443310)
 * [Diamine Ink - Bilberry](http://www.jetpens.com/Diamine-Fountain-Pen-Ink-80-ml-Bilberry-Blue/pd/8770)
 * [Diamine Ink - Florida Blue](http://www.jetpens.com/Diamine-Fountain-Pen-Ink-80-ml-Florida-Blue/pd/7757)
@@ -52,4 +51,3 @@
 ## Gift Certificates
 * Drunken Monkey Coffee
 * [Amazon](http://www.amazon.com/gp/product/B00067L6TQ/ref=topnav_giftcert_gw)
-* [Duluth Trading](http://www.duluthtrading.com/store/product/gift-cards-duluth-trading-gift-cards-GIFTCARD.aspx")
