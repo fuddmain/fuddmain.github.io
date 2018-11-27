@@ -7,7 +7,7 @@
 * [Anfield Street Sign - Liverpool FC](http://a.co/66FpduP)
 
 ## Yo-Yo
-* One Drop Markmont Classic) - Colors: Matt Giroux Edition, Monster Green, Green, Blue
+* One Drop Markmont Classic - Colors: Matt Giroux Edition, Monster Green, Green, Blue
   * [YoYoExpert](https://shop.yoyoexpert.com/collections/one-drop-yoyos/products/one-drop-markmont-classic-yoyo)
   * [YoYoLoco](https://yoyoloco.com/collections/one-drop/products/onedrop-markmont-classic-yoyo)
 
