@@ -16,8 +16,12 @@
 * [Leuchtturm1917 5 Year Memory Notebook - A5 - Black](https://www.gouletpens.com/leuchtturm1917-some-lines-a-day-5-year-memory-notebook-a5-black/p/LT-343552)
 
 ## Books
+* [Vinland Saga 3](http://a.co/d/iEHushD) by Makoto Yukimura
+* [Lone Wolf and Cub Omnibus Volume 2](http://a.co/d/1tIaSqj) by Kazuo Koike
 * [Flour Water Salt Yeast](http://a.co/1BA3DfE) by Ken Forkish
 * [The Elements of Pizza](http://a.co/ffp59kb) by Ken Forkish
+* [Barbecue Sauces, Ruby, and Marinades](http://a.co/d/i5jOZv7) by Steven Raichlen
+* [Franklin Barbecue: A Meat-Smoking Manifesto](http://a.co/d/9TE8NDS ) by Aaron Franklin
 * [March (Trilogy Slipcase Set)](http://a.co/hM27i8d) by John Lewis
 * [MetaMaus: A Look Inside a Modern Classic, Maus](http://a.co/9fPPbio) by Art Spiegelman
 * [The Comic Book Story of Beer](http://a.co/goBCn4w)
