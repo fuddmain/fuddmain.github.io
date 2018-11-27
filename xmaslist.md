@@ -10,6 +10,12 @@
 * One Drop Markmont Classic - Colors: Matt Giroux Edition, Monster Green, Green, Blue
   * [YoYoExpert](https://shop.yoyoexpert.com/collections/one-drop-yoyos/products/one-drop-markmont-classic-yoyo)
   * [YoYoLoco](https://yoyoloco.com/collections/one-drop/products/onedrop-markmont-classic-yoyo)
+* [Zipline Strings - Smurfberry Blast](https://ziplinestrings.bigcartel.com/product/smurfberry-blast-slushy-edition)
+* [Zipline Strings - Cranberry Crush](https://ziplinestrings.bigcartel.com/product/blood-orange-slushy-edition)
+* [Zipline Strings - Clockwork Orange](https://ziplinestrings.bigcartel.com/product/clockwork-orange)
+* [Zipline Strings - Bubble Vicious](https://ziplinestrings.bigcartel.com/product/bubble-vicious-v2-0-signature-edition)
+* [Zipline Strings - Bazooka Blue](https://ziplinestrings.bigcartel.com/product/bazooka-blue)
+
 
 ## Pens, Ink, & Paper
 * [Galaxie XL Rollerball Pen](http://karaskustoms.com/reaktor-line/galaxie-xl.html) - Colors: Black/Black, Tumbled/Tumbled
