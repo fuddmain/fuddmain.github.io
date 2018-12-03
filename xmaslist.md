@@ -4,6 +4,7 @@
 * [Slow 'N Sear XL](https://abcbarbecue.com/product/slow-n-sear-xl/)
 * [Thermapen Mk4](https://www.thermoworks.com/Thermapen-Mk4) - Colors: Orange, Blue, Red
 * [TPT Slide: Titanium Pocket Tool (Stonewashed)](https://bigidesign.com/collections/pocket-tools/products/titanium-pocket-tool-slide)
+* [Takeya Actives Insulated Stainless Water Bottled, 32oz, Blue (American Spirit Collection)](http://a.co/d/6IInQwT)
 * [Radiant Light Mill - Solar Radiometer](http://www.thinkgeek.com/product/jjrm/?cpg=edm_101106875)
 * [Anfield Street Sign - Liverpool FC](http://a.co/66FpduP)
 
