@@ -18,6 +18,9 @@
 * [Zipline Strings - Bubble Vicious](https://ziplinestrings.bigcartel.com/product/bubble-vicious-v2-0-signature-edition)
 * [Zipline Strings - Bazooka Blue](https://ziplinestrings.bigcartel.com/product/bazooka-blue)
 
+## Carving
+* [Wood Carving Tools Set for Spoon Carving](http://a.co/d/73eq5nx)
+* [Wood carving spoon blank](http://a.co/d/9O1Nh0W)
 
 ## Pens, Ink, & Paper
 * [TWSBI Diamond 580ALR Fountain Pen - Nickel Gray - 1.1mm Stub Nib](https://www.gouletpens.com/products/twsbi-diamond-580alr-fountain-pen-nickel-gray?variant=12830902222891)
