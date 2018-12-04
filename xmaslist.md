@@ -33,6 +33,7 @@
 * [Lone Wolf and Cub Omnibus Volume 2](http://a.co/d/1tIaSqj) by Kazuo Koike
 * [Flour Water Salt Yeast](http://a.co/1BA3DfE) by Ken Forkish
 * [The Elements of Pizza](http://a.co/ffp59kb) by Ken Forkish
+* [Spoon: A Guide to Spoon Carving and the New Wood Culture](http://a.co/d/c0yjLhV) by Barn the Spoon
 * [Barbecue Sauces, Rubs, and Marinades](http://a.co/d/i5jOZv7) by Steven Raichlen
 * [Franklin Barbecue: A Meat-Smoking Manifesto](http://a.co/d/9TE8NDS ) by Aaron Franklin
 * [March (Trilogy Slipcase Set)](http://a.co/hM27i8d) by John Lewis
