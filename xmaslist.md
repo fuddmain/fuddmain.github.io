@@ -31,7 +31,10 @@
 
 ## Books
 * [Vinland Saga 3](http://a.co/d/iEHushD) by Makoto Yukimura
+* [Vinland Saga 4](http://a.co/d/7KSK7Tg) by Makoto Yukimura
 * [Lone Wolf and Cub Omnibus Volume 2](http://a.co/d/1tIaSqj) by Kazuo Koike
+* [20th Century Boys: The Perfect Edition, Vol. 1](http://a.co/d/fxnfnU4) by Naoki Urasawa
+* [Pluto: Urasawa x Tezuka, Vol. 2](http://a.co/d/1tPoSMS ) by Naoki Urasawa
 * [Flour Water Salt Yeast](http://a.co/1BA3DfE) by Ken Forkish
 * [The Elements of Pizza](http://a.co/ffp59kb) by Ken Forkish
 * [Spoon: A Guide to Spoon Carving and the New Wood Culture](http://a.co/d/c0yjLhV) by Barn the Spoon
