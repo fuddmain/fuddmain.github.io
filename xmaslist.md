@@ -9,6 +9,7 @@
 * [Stanley Vacuum Stein](http://a.co/d/jl3ETqN)
 * [Radiant Light Mill - Solar Radiometer](http://www.thinkgeek.com/product/jjrm/?cpg=edm_101106875)
 * [Anfield Street Sign - Liverpool FC](http://a.co/66FpduP)
+* [AmazingRibs Pitmaster Club Membership](https://amazingribs.com/information-about-our-pitmaster-club)
 
 ## Yo-Yo
 * One Drop Markmont Classic - Colors: Matt Giroux Edition, Monster Green, Green, Blue
