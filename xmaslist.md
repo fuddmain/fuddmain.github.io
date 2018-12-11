@@ -2,6 +2,7 @@
 
 ## Misc.
 * [Slow 'N Sear XL](https://abcbarbecue.com/product/slow-n-sear-xl/)
+* [26” Two-Zone Cooking Grate with EasySpin](https://abcbarbecue.com/product/26-easyspin-grate/)
 * [Thermapen Mk4](https://www.thermoworks.com/Thermapen-Mk4) - Colors: Orange, Blue, Red
 * [Weber Original Kettle 18-Inch Charcoal Grill](http://a.co/d/2pym78o ) (Grill more food and for smaller cooks)
 * [TPT Slide: Titanium Pocket Tool (Stonewashed)](https://bigidesign.com/collections/pocket-tools/products/titanium-pocket-tool-slide)
