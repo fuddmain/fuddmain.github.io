@@ -21,7 +21,7 @@
 * [Zipline Strings - Clockwork Orange](https://ziplinestrings.bigcartel.com/product/clockwork-orange)
 * [Zipline Strings - Bubble Vicious](https://ziplinestrings.bigcartel.com/product/bubble-vicious-v2-0-signature-edition)
 * [Zipline Strings - Bazooka Blue](https://ziplinestrings.bigcartel.com/product/bazooka-blue)
- w
+
 ## Carving
 * [Wood Carving Tools Set for Spoon Carving](http://a.co/d/73eq5nx)
 * [Wood carving spoon blank](http://a.co/d/9O1Nh0W)
