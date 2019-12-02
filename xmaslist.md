@@ -9,16 +9,6 @@
 * [Anfield Street Sign - Liverpool FC](http://a.co/66FpduP)
 * [AmazingRibs Pitmaster Club Membership](https://amazingribs.com/information-about-our-pitmaster-club)
 
-## Yo-Yo
-* One Drop Markmont Classic - Colors: Matt Giroux Edition, Monster Green, Green, Blue
-  * [YoYoExpert](https://shop.yoyoexpert.com/collections/one-drop-yoyos/products/one-drop-markmont-classic-yoyo)
-  * [YoYoLoco](https://yoyoloco.com/collections/one-drop/products/onedrop-markmont-classic-yoyo)
-* [Zipline Strings - Smurfberry Blast](https://ziplinestrings.bigcartel.com/product/smurfberry-blast-slushy-edition)
-* [Zipline Strings - Cranberry Crush](https://ziplinestrings.bigcartel.com/product/blood-orange-slushy-edition)
-* [Zipline Strings - Clockwork Orange](https://ziplinestrings.bigcartel.com/product/clockwork-orange)
-* [Zipline Strings - Bubble Vicious](https://ziplinestrings.bigcartel.com/product/bubble-vicious-v2-0-signature-edition)
-* [Zipline Strings - Bazooka Blue](https://ziplinestrings.bigcartel.com/product/bazooka-blue)
-
 ## Carving
 * [Wood Carving Tools Set for Spoon Carving](http://a.co/d/73eq5nx)
 * [Wood carving spoon blank](http://a.co/d/9O1Nh0W)
@@ -34,8 +24,6 @@
 * [Vinland Saga 4](http://a.co/d/7KSK7Tg) by Makoto Yukimura
 * [20th Century Boys: The Perfect Edition, Vol. 1](http://a.co/d/fxnfnU4) by Naoki Urasawa
 * [Pluto: Urasawa x Tezuka, Vol. 2](http://a.co/d/1tPoSMS ) by Naoki Urasawa
-* [Flour Water Salt Yeast](http://a.co/1BA3DfE) by Ken Forkish
-* [The Elements of Pizza](http://a.co/ffp59kb) by Ken Forkish
 * [Spoon: A Guide to Spoon Carving and the New Wood Culture](http://a.co/d/c0yjLhV) by Barn the Spoon
 * [MetaMaus: A Look Inside a Modern Classic, Maus](http://a.co/9fPPbio) by Art Spiegelman
 * [The Comic Book Story of Beer](http://a.co/goBCn4w)
