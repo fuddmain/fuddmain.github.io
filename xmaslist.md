@@ -5,7 +5,6 @@
 * [26” Two-Zone Cooking Grate with EasySpin](https://abcbarbecue.com/product/26-easyspin-grate/)
 * [Thermapen Mk4](https://www.thermoworks.com/Thermapen-Mk4) - Colors: Orange, Blue, Red
 * [Anfield Street Sign - Liverpool FC](http://a.co/66FpduP)
-* [AmazingRibs Pitmaster Club Membership](https://amazingribs.com/information-about-our-pitmaster-club)
 
 ## Carving
 * [Wood Carving Tools Set for Spoon Carving](http://a.co/d/73eq5nx)
@@ -21,7 +20,6 @@
 * [Pluto: Urasawa x Tezuka, Vol. 2](http://a.co/d/1tPoSMS ) by Naoki Urasawa
 * [Spoon: A Guide to Spoon Carving and the New Wood Culture](http://a.co/d/c0yjLhV) by Barn the Spoon
 * [MetaMaus: A Look Inside a Modern Classic, Maus](http://a.co/9fPPbio) by Art Spiegelman
-* [The Comic Book Story of Beer](http://a.co/goBCn4w)
 
 ## Gift Certificates
 * Drunken Monkey Coffee
