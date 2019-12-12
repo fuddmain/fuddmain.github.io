@@ -2,7 +2,6 @@
 
 ## Misc.
 * [Kindle Paperwhite](https://www.amazon.com/dp/B075MWNNJG/ref=cm_sw_em_r_mt_dp_U_GQs6DbSZ6VBT0 ) - Black; 8GB; Without Special Offers
-* [26” Two-Zone Cooking Grate with EasySpin](https://abcbarbecue.com/product/26-easyspin-grate/)
 * [Thermapen Mk4](https://www.thermoworks.com/Thermapen-Mk4) - Colors: Orange, Blue, Red
 * [Anfield Street Sign - Liverpool FC](http://a.co/66FpduP)
 
