@@ -12,7 +12,6 @@
 * [Wood carving spoon blank](http://a.co/d/9O1Nh0W)
 
 ## Pens, Ink, & Paper
-* [TWSBI Diamond 580ALR Fountain Pen - Nickel Gray - Fine Nib](https://www.gouletpens.com/products/twsbi-diamond-580alr-fountain-pen-nickel-gray?variant=12830902124587)
 * [Leuchtturm1917 5 Year Memory Notebook - A5 - Black](https://www.gouletpens.com/leuchtturm1917-some-lines-a-day-5-year-memory-notebook-a5-black/p/LT-343552)
 
 ## Books
