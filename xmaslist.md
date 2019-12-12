@@ -14,6 +14,7 @@
 * [Leuchtturm1917 5 Year Memory Notebook - A5 - Black](https://www.gouletpens.com/leuchtturm1917-some-lines-a-day-5-year-memory-notebook-a5-black/p/LT-343552)
 
 ## Books
+* [The Banh Mi Handbook: Recipes for Crazy-Delicious Vietnamese Sandwiches](https://www.amazon.com/Banh-Handbook-Crazy-Delicious-Vietnamese-Sandwiches/dp/160774533X/) by Andrea Nguyen
 * [Vinland Saga 3](http://a.co/d/iEHushD) by Makoto Yukimura
 * [Vinland Saga 4](http://a.co/d/7KSK7Tg) by Makoto Yukimura
 * [20th Century Boys: The Perfect Edition, Vol. 1](http://a.co/d/fxnfnU4) by Naoki Urasawa
