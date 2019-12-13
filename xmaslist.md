@@ -2,6 +2,7 @@
 
 ## Misc.
 * [Kindle Paperwhite](https://www.amazon.com/dp/B075MWNNJG/ref=cm_sw_em_r_mt_dp_U_GQs6DbSZ6VBT0 ) - Black; 8GB; Without Special Offers
+* [Bodum Bistro Burr Grinder](https://www.amazon.com/dp/B0043095WW) - Black
 * [Thermapen Mk4](https://www.thermoworks.com/Thermapen-Mk4) - Colors: Orange, Blue, Red
 * [Anfield Street Sign - Liverpool FC](http://a.co/66FpduP)
 
