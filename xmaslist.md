@@ -17,7 +17,7 @@
 
 ## Books
 * [The Banh Mi Handbook: Recipes for Crazy-Delicious Vietnamese Sandwiches](https://www.amazon.com/Banh-Handbook-Crazy-Delicious-Vietnamese-Sandwiches/dp/160774533X/) by Andrea Nguyen
-* [Every Tool's a Hammer: Lif Is What You Make It](https://www.amazon.com/Every-Tools-Hammer-Life-What/dp/1982113472/) by Adam Savage - Hardcover
+* [Every Tool's a Hammer: Life Is What You Make It](https://www.amazon.com/Every-Tools-Hammer-Life-What/dp/1982113472/) by Adam Savage - Hardcover
 * [Vinland Saga 3](http://a.co/d/iEHushD) by Makoto Yukimura
 * [Vinland Saga 4](http://a.co/d/7KSK7Tg) by Makoto Yukimura
 * [20th Century Boys: The Perfect Edition, Vol. 1](http://a.co/d/fxnfnU4) by Naoki Urasawa
