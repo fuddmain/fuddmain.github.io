@@ -18,6 +18,8 @@
 ## Books
 * [The Banh Mi Handbook: Recipes for Crazy-Delicious Vietnamese Sandwiches](https://www.amazon.com/Banh-Handbook-Crazy-Delicious-Vietnamese-Sandwiches/dp/160774533X/) by Andrea Nguyen
 * [Every Tool's a Hammer: Life Is What You Make It](https://www.amazon.com/Every-Tools-Hammer-Life-What/dp/1982113472/) by Adam Savage - Hardcover
+* [Archaeology from Space: How the Future Shapes Our Past](https://www.amazon.com/Archaeology-Space-Future-Shapes-Past/dp/1250198283) by Sarah Parcak - Hardcover
+* [The Rise and Fall of the Dinosaurs: A New History of a Lost World](https://www.amazon.com/dp/0062490427/) by Steve Brusatte - Hardcover
 * [Vinland Saga 3](http://a.co/d/iEHushD) by Makoto Yukimura
 * [Vinland Saga 4](http://a.co/d/7KSK7Tg) by Makoto Yukimura
 * [20th Century Boys: The Perfect Edition, Vol. 1](http://a.co/d/fxnfnU4) by Naoki Urasawa
