@@ -11,10 +11,6 @@
 * [Wood Carving Tools Set for Spoon Carving](http://a.co/d/73eq5nx) - Right-Handed
 * [Wood carving spoon blank](http://a.co/d/9O1Nh0W)
 
-## Bread Baking
-* [Lodge Pro-Logic 4 Quart Cast Iron Dutch Oven](https://www.amazon.com/dp/B0001DJVGK/)
-* [9 Inch Bread Banneton Proofing Basket](https://www.amazon.com/dp/B07F6TWB8W/)
-
 ## Pens, Ink, & Paper
 * [2019 Anniversary Edition INK - Matte Grey Fountain Pen](http://karaskustoms.com/special-projects/2019-anniversary-ink.html) - Bock Nib 1.1 #6
 * [Monteverde Ink](https://www.amazon.com/Monteverde-Technology-Horizon-Blue-G308HB/dp/B01M1O12V0/) - Color: Horizon Blue
@@ -25,6 +21,7 @@
 * [Every Tool's a Hammer: Life Is What You Make It](https://www.amazon.com/Every-Tools-Hammer-Life-What/dp/1982113472/) by Adam Savage - Hardcover
 * [Archaeology from Space: How the Future Shapes Our Past](https://www.amazon.com/Archaeology-Space-Future-Shapes-Past/dp/1250198283) by Sarah Parcak - Hardcover
 * [The Rise and Fall of the Dinosaurs: A New History of a Lost World](https://www.amazon.com/dp/0062490427/) by Steve Brusatte - Hardcover
+* [Bring the Noise: The Jürgen Klopp Story](https://www.amazon.com/Bring-Noise-J%C3%BCrgen-Klopp-Story/dp/1568589573/) by Raphael Honigstein
 * [Vinland Saga 3](http://a.co/d/iEHushD) by Makoto Yukimura
 * [Vinland Saga 4](http://a.co/d/7KSK7Tg) by Makoto Yukimura
 * [20th Century Boys: The Perfect Edition, Vol. 1](http://a.co/d/fxnfnU4) by Naoki Urasawa
