@@ -3,12 +3,17 @@
 ## Misc.
 * [Kindle Paperwhite](https://www.amazon.com/dp/B075MWNNJG/ref=cm_sw_em_r_mt_dp_U_GQs6DbSZ6VBT0 ) - Black; 8GB; Without Special Offers
 * [Bodum Bistro Burr Grinder](https://www.amazon.com/dp/B0043095WW) - Black
+* [Legend of Zelda Link's Awakening - Nintendo Switch](https://www.amazon.com/dp/B07SG15148/?th=1)
 * [Thermapen Mk4](https://www.thermoworks.com/Thermapen-Mk4) - Colors: Orange, Blue, Red
 * [Anfield Street Sign - Liverpool FC](http://a.co/66FpduP)
 
 ## Carving
-* [Wood Carving Tools Set for Spoon Carving](http://a.co/d/73eq5nx)
+* [Wood Carving Tools Set for Spoon Carving](http://a.co/d/73eq5nx) - Right-Handed
 * [Wood carving spoon blank](http://a.co/d/9O1Nh0W)
+
+## Bread Baking
+* [Lodge Pro-Logic 4 Quart Cast Iron Dutch Oven](https://www.amazon.com/dp/B0001DJVGK/)
+* [9 Inch Bread Banneton Proofing Basket](https://www.amazon.com/dp/B07F6TWB8W/)
 
 ## Pens, Ink, & Paper
 * [2019 Anniversary Edition INK - Matte Grey Fountain Pen](http://karaskustoms.com/special-projects/2019-anniversary-ink.html) - Bock Nib 1.1 #6
