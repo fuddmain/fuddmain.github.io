@@ -1,15 +1,10 @@
 # Wish List
 
 ## Misc.
-* [Kindle Paperwhite](https://www.amazon.com/dp/B075MWNNJG/ref=cm_sw_em_r_mt_dp_U_GQs6DbSZ6VBT0 ) - Black; 8GB; Without Special Offers
 * [Bodum Bistro Burr Grinder](https://www.amazon.com/dp/B0043095WW) - Black
 * [Legend of Zelda Link's Awakening - Nintendo Switch](https://www.amazon.com/dp/B07SG15148/?th=1)
 * [Thermapen Mk4](https://www.thermoworks.com/Thermapen-Mk4) - Colors: Orange, Blue, Red
 * [Anfield Street Sign - Liverpool FC](http://a.co/66FpduP)
-
-## Carving
-* [Wood Carving Tools Set for Spoon Carving](http://a.co/d/73eq5nx) - Right-Handed
-* [Wood carving spoon blank](http://a.co/d/9O1Nh0W)
 
 ## Pens, Ink, & Paper
 * [2019 Anniversary Edition INK - Matte Grey Fountain Pen](http://karaskustoms.com/special-projects/2019-anniversary-ink.html) - Bock Nib 1.1 #6
@@ -18,13 +13,9 @@
 
 ## Books
 * [The Banh Mi Handbook: Recipes for Crazy-Delicious Vietnamese Sandwiches](https://www.amazon.com/Banh-Handbook-Crazy-Delicious-Vietnamese-Sandwiches/dp/160774533X/) by Andrea Nguyen
-* [Every Tool's a Hammer: Life Is What You Make It](https://www.amazon.com/Every-Tools-Hammer-Life-What/dp/1982113472/) by Adam Savage - Hardcover
 * [Archaeology from Space: How the Future Shapes Our Past](https://www.amazon.com/Archaeology-Space-Future-Shapes-Past/dp/1250198283) by Sarah Parcak - Hardcover
 * [The Rise and Fall of the Dinosaurs: A New History of a Lost World](https://www.amazon.com/dp/0062490427/) by Steve Brusatte - Hardcover
 * [Bring the Noise: The Jürgen Klopp Story](https://www.amazon.com/Bring-Noise-J%C3%BCrgen-Klopp-Story/dp/1568589573/) by Raphael Honigstein
-* [Vinland Saga 3](http://a.co/d/iEHushD) by Makoto Yukimura
-* [Vinland Saga 4](http://a.co/d/7KSK7Tg) by Makoto Yukimura
-* [20th Century Boys: The Perfect Edition, Vol. 1](http://a.co/d/fxnfnU4) by Naoki Urasawa
 * [Pluto: Urasawa x Tezuka, Vol. 2](http://a.co/d/1tPoSMS ) by Naoki Urasawa
 * [Spoon: A Guide to Spoon Carving and the New Wood Culture](http://a.co/d/c0yjLhV) by Barn the Spoon
 * [MetaMaus: A Look Inside a Modern Classic, Maus](http://a.co/9fPPbio) by Art Spiegelman
