@@ -3,11 +3,6 @@
 ## Misc.
 * Money for iPad
 * [Legend of Zelda Link's Awakening - Nintendo Switch](https://www.amazon.com/dp/B07SG15148/?th=1)
-* [Thermapen Mk4](https://www.thermoworks.com/Thermapen-Mk4) - Colors: Orange, Blue, Red
-
-## Pens, Ink, & Paper
-* [Monteverde Ink](https://www.amazon.com/Monteverde-Technology-Horizon-Blue-G308HB/dp/B01M1O12V0/) - Color: Horizon Blue
-* [Leuchtturm1917 5 Year Memory Notebook - A5 - Black](https://www.gouletpens.com/leuchtturm1917-some-lines-a-day-5-year-memory-notebook-a5-black/p/LT-343552)
 
 ## Books
 * [20th Century Boys: The Perfect Edition, Vol. 9](https://www.amazon.com/dp/1421599694/) by Naoki Urasawa
