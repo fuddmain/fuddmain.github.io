@@ -1,6 +1,12 @@
 # Wish List
 
 ## Misc.
+* [Adex Arc Handle - Fat Version](https://adexclub.com/product/adex-arc-handle-only/)
+* [Adex Fat Mace Handle](https://adexclub.com/product/adex-thick-mace-handle/)
+* [Pit Barrel 3-Hanger Value Pack](https://pitbarrelcooker.com/collections/accessories/products/3-hanger-value-pack)
+* [Custom Pit Barrel GrillGrate](https://pitbarrelcooker.com/collections/accessories/products/custom-pit-barrel-grillgrate)
+* [Liverpool Fleece Blanket](https://www.amazon.com/dp/B07HRF248T/)
+* [Liverpool FC Metal Street Sign](https://www.amazon.com/Liverpool-Metal-Street-Sign-Liverbird/dp/B009IKASF0)
 
 ## Books
 * [Usagi Yojimbo: Bunraku and Other Stories](https://www.amazon.com/dp/1684056578/) by Stan Sakai
