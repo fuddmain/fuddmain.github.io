@@ -8,6 +8,12 @@
 * [Liverpool Fleece Blanket](https://www.amazon.com/dp/B07HRF248T/)
 * [Liverpool FC Metal Street Sign](https://www.amazon.com/Liverpool-Metal-Street-Sign-Liverbird/dp/B009IKASF0)
 
+## Yo-yo
+* [One Drop Fat Tire](https://onedropyoyos.com/store/) - Color in order of preference: Blue, Purple, Clear
+* [CLYW x iYoYo Pixel Bearing](https://shop.yoyoexpert.com/collections/yo-yo-bearings/products/pixel-bearing-by-iyoyo-x-clyw) - At least 3
+* [YoYoStringLab Nytro Strin](https://shop.yoyoexpert.com/collections/yo-yo-string/products/nytro-string-by-yoyostringlabs) - 5 pack; Color: Neon Orange
+* [YoYoExpert Velvet Bag](https://shop.yoyoexpert.com/collections/bags-cases/products/yoyoexpert-yoyo-velvet-bag) - Color: Any; Need multiples
+
 ## Books
 * [Usagi Yojimbo: Bunraku and Other Stories](https://www.amazon.com/dp/1684056578/) by Stan Sakai
 * [Vinland Saga 9](https://www.amazon.com/Vinland-Saga-9-Makoto-Yukimura/dp/163236445X/) by Makoto Yukimura - Hardcover
