@@ -13,6 +13,10 @@
 * [YoYoStringLab Nytro String](https://shop.yoyoexpert.com/collections/yo-yo-string/products/nytro-string-by-yoyostringlabs) - 5 pack; Color: Neon Orange
 * [YoYoExpert Velvet Bag](https://shop.yoyoexpert.com/collections/bags-cases/products/yoyoexpert-yoyo-velvet-bag) - Color: Any; Need multiples
 
+## Fountain Pens
+* [Birmingham Pens Ink - Atlantic Seaweed 30mL](https://www.birminghampens.com/collections/everlasting-ink/products/atlantic-seaweed)
+* [Birmingham Pens Ink - Pincushion Moss 30mL](https://www.birminghampens.com/collections/everlasting-ink/products/pincushion-moss)
+
 ## Books
 * [Usagi Yojimbo: Bunraku and Other Stories](https://www.amazon.com/dp/1684056578/) by Stan Sakai
 * [Vinland Saga 9](https://www.amazon.com/Vinland-Saga-9-Makoto-Yukimura/dp/163236445X/) by Makoto Yukimura - Hardcover
