@@ -8,6 +8,7 @@
 * [Liverpool FC Metal Street Sign](https://www.amazon.com/Liverpool-Metal-Street-Sign-Liverbird/dp/B009IKASF0)
 
 ## Yo-yo
+* [One Drop Rebirth](https://onedropyoyos.com/store/) - Color in order of preference: Blue, Green, Black
 * [One Drop Fat Tire](https://onedropyoyos.com/store/) - Color in order of preference: Blue, Purple, Clear
 * [CLYW x iYoYo Pixel Bearing](https://shop.yoyoexpert.com/collections/yo-yo-bearings/products/pixel-bearing-by-iyoyo-x-clyw) - At least 3
 * [YoYoStringLab Nytro String](https://shop.yoyoexpert.com/collections/yo-yo-string/products/nytro-string-by-yoyostringlabs) - 5 pack; Color: Neon Orange
