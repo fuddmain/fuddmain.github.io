@@ -3,6 +3,7 @@
 ## Misc.
 * [Adex Arc Handle - Fat Version](https://adexclub.com/product/adex-arc-handle-only/)
 * [Adex Fat Mace Handle](https://adexclub.com/product/adex-thick-mace-handle/)
+* [Ultimate Body Press Indian Clubs - Traditional; Weight: 2 LB](https://www.amazon.com/Ultimate-Body-Press-Indian-2-Pound/dp/B007AQ4G70?th=1&psc=1)
 * [Pit Barrel 3-Hanger Value Pack](https://pitbarrelcooker.com/collections/accessories/products/3-hanger-value-pack)
 * [Liverpool Fleece Blanket](https://www.amazon.com/dp/B07HRF248T/)
 * [Liverpool FC Metal Street Sign](https://www.amazon.com/Liverpool-Metal-Street-Sign-Liverbird/dp/B009IKASF0)
