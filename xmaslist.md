@@ -9,6 +9,7 @@
 * [Liverpool FC Metal Street Sign](https://www.amazon.com/Liverpool-Metal-Street-Sign-Liverbird/dp/B009IKASF0)
 * [7 Foot Heavy Duty Mobility Stick](https://stickmobility.com/collections/heavy-duty-mobility-sticks/products/heavy-duty-individual-sticks?variant=37782785818792)
 * [Heavy Duty Workout Sandbag](https://www.amazon.com/ETERMTT-Sandbags-Adjustable-Tactical-Conditioning/dp/B08F29PW1X/)
+* [Kinkajou Bottle Cutter](https://www.bottlecutting.com/collections/bottle-cutters/products/kinkajou-bottle-cutter?variant=1033416908) - Color: Gator (Blue/Orang)
 
 ## Yo-yo
 * [One Drop Rebirth](https://onedropyoyos.com/store/) - Color in order of preference: Blue, Green, Black
