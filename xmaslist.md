@@ -10,7 +10,8 @@
 * [7 Foot Heavy Duty Mobility Stick](https://stickmobility.com/collections/heavy-duty-mobility-sticks/products/heavy-duty-individual-sticks?variant=37782785818792)
 * [Heavy Duty Workout Sandbag](https://www.amazon.com/ETERMTT-Sandbags-Adjustable-Tactical-Conditioning/dp/B08F29PW1X/)
 * [Kinkajou Bottle Cutter](https://www.bottlecutting.com/collections/bottle-cutters/products/kinkajou-bottle-cutter?variant=1033416908) - Color: Gator (Blue/Orange)
-* [12-in Pellet Smoker](https://www.amazon.com/dp/B08DKRY641/)
+* [12-inch Pellet Smoker](https://www.amazon.com/dp/B08DKRY641/)
+* [BBQr's Delight Pecan Wood Pellets 1LB Bag](https://www.amazon.com/BBQrs-Delight-Apple-Wood-Pellets/dp/B000UH4M5C/?th=1)
 
 ## Yo-yo
 * [One Drop Rebirth](https://onedropyoyos.com/store/) - Color in order of preference: Blue, Green, Black
