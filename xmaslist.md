@@ -25,6 +25,7 @@
 * [Birmingham Pens Ink - Pincushion Moss 30mL](https://www.birminghampens.com/collections/everlasting-ink/products/pincushion-moss)
 
 ## Books
+* [Gathering Moss: A Natural and Cultural History of Mosses ](https://www.amazon.com/dp/0870714996/) by Robin Wall Kimmerer - Paperback
 * [Usagi Yojimbo: Bunraku and Other Stories](https://www.amazon.com/dp/1684056578/) by Stan Sakai
 * [Usagi Yojimbo Origins, Vol. 1: Samurai](https://www.amazon.com/dp/168405740X/) by Stan Sakai
 * [Vinland Saga 9](https://www.amazon.com/Vinland-Saga-9-Makoto-Yukimura/dp/163236445X/) by Makoto Yukimura - Hardcover
