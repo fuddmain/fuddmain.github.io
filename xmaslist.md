@@ -6,6 +6,7 @@
 * [7 Foot Heavy Duty Mobility Stick](https://stickmobility.com/collections/heavy-duty-mobility-sticks/products/heavy-duty-individual-sticks?variant=37782785818792)
 * [Heavy Duty Workout Sandbag](https://www.amazon.com/ETERMTT-Sandbags-Adjustable-Tactical-Conditioning/dp/B08F29PW1X/)
 * [Kinkajou Bottle Cutter](https://www.bottlecutting.com/collections/bottle-cutters/products/kinkajou-bottle-cutter?variant=1033416908) - Color: Gator (Blue/Orange)
+* [Audubon Bird Call](https://www.amazon.com/dp/B005L8Y4)
 
 ## Yo-yo
 * [CLYW x iYoYo Pixel Bearing](https://shop.yoyoexpert.com/collections/yo-yo-bearings/products/pixel-bearing-by-iyoyo-x-clyw) - At least 3
