@@ -2,16 +2,15 @@
 
 ## Misc
 
-* [7 Foot Heavy Duty Mobility Stick](https://stickmobility.com/collections/heavy-duty-mobility-sticks/products/heavy-duty-individual-sticks?variant=37782785818792)
+* [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
 * [Heavy Duty Workout Sandbag](https://www.amazon.com/ETERMTT-Sandbags-Adjustable-Tactical-Conditioning/dp/B08F29PW1X/)
-* [Kinkajou Bottle Cutter](https://www.bottlecutting.com/collections/bottle-cutters/products/kinkajou-bottle-cutter?variant=1033416908) - Color: Gator (Blue/Orange)
 * [Audubon Bird Call](https://www.amazon.com/dp/B005L8Y4)
 
 ## Yo-yo
 
 * [One Drop YoYos - Kamuraiju](https://shop.yoyoexpert.com/collections/one-drop-yoyos/products/kamuraiju-yoyo-by-one-drop-yoyo-designs) - Color in order of preference: Purple, Blue, Green, Red, Orange
 * [YYF Center Trac Bearing](https://shop.yoyoexpert.com/collections/yo-yo-bearings/products/center-trac-yoyo-bearing?variant=19201959364) - Type X - Size C - 10 Ball Bearing; Multiple Please
-* [YoYoStringLab Nytro String](https://shop.yoyoexpert.com/collections/yo-yo-string/products/nytro-string-by-yoyostringlabs) - 5 pack; Color: Neon Orange
+* [YoYoStringLab Nytro String](https://shop.yoyoexpert.com/collections/yo-yo-string/products/nytro-string-by-yoyostringlabs) - 5 pack; Color: Neon Orange; Multiple Please
 * [YoYoExpert Velvet Bag](https://shop.yoyoexpert.com/collections/bags-cases/products/yoyoexpert-yoyo-velvet-bag) - Color: Any; Need multiples
 
 ## Fountain Pens
