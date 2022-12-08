@@ -2,8 +2,8 @@
 
 ## Misc
 
+* [Lochby Venture Pouch](https://www.lochby.com/collections/frontpage/products/venture-pouch) - Color: Brown; DO NOT want any other color
 * [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
-* [Heavy Duty Workout Sandbag](https://www.amazon.com/ETERMTT-Sandbags-Adjustable-Tactical-Conditioning/dp/B08F29PW1X/)
 * [Audubon Bird Call](https://www.amazon.com/dp/B005L8Y4)
 
 ## Yo-yo
