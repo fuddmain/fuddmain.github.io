@@ -5,6 +5,7 @@
 * [Lochby Venture Pouch](https://www.lochby.com/collections/frontpage/products/venture-pouch) - Color: Brown; DO NOT want any other color
 * [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
 * [Audubon Bird Call](https://www.amazon.com/dp/B005L8Y4)
+* [Portable Kindle Stand](https://www.amazon.com/dp/B09HKN6M19/)
 
 ## Yo-yo
 
@@ -15,6 +16,7 @@
 
 ## Fountain Pens
 
+* [Bock #6 Cutlass Nib](https://allinthenib.com/products/bock-6-cutlass)
 * [Birmingham Pens Ink - Atlantic Seaweed 30mL](https://www.birminghampens.com/collections/everlasting-ink/products/atlantic-seaweed)
 * [Birmingham Pens Ink - Pincushion Moss 30mL](https://www.birminghampens.com/collections/everlasting-ink/products/pincushion-moss)
 
