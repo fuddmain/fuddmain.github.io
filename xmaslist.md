@@ -6,6 +6,8 @@
 * [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
 * [Audubon Bird Call](https://www.amazon.com/dp/B005L8Y4)
 * [Portable Kindle Stand](https://www.amazon.com/dp/B09HKN6M19/)
+* [Heavy Duty Plastic Indian Clubs - 2LB Set of 2 (2LB Each CLub)](https://www.amazon.com/Logest-Mace-Exercise-Club-Rehabilitation/dp/B09PTBRGB2/)
+* [Stirling Engine](https://www.amazon.com/dp/B008JOKO1O/)
 
 ## Yo-yo
 
