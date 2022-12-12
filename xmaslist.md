@@ -4,7 +4,7 @@
 
 * [Lochby Venture Pouch](https://www.lochby.com/collections/frontpage/products/venture-pouch) - Color: Brown; DO NOT want any other color
 * [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
-* [Audubon Bird Call](https://www.amazon.com/dp/B005L8Y4)
+* [Audubon Bird Call](https://www.amazon.com/dp/B005L8Y4JY/)
 * [Portable Kindle Stand](https://www.amazon.com/dp/B09HKN6M19/)
 * [Heavy Duty Plastic Indian Clubs - 2LB Set of 2 (2LB Each CLub)](https://www.amazon.com/Logest-Mace-Exercise-Club-Rehabilitation/dp/B09PTBRGB2/)
 * [Stirling Engine](https://www.amazon.com/dp/B008JOKO1O/)
@@ -15,6 +15,10 @@
 * [YYF Center Trac Bearing](https://shop.yoyoexpert.com/collections/yo-yo-bearings/products/center-trac-yoyo-bearing?variant=19201959364) - Type X - Size C - 10 Ball Bearing; Multiple Please
 * [YoYoStringLab Nytro String](https://shop.yoyoexpert.com/collections/yo-yo-string/products/nytro-string-by-yoyostringlabs) - 5 pack; Color: Neon Orange; Multiple Please
 * [YoYoExpert Velvet Bag](https://shop.yoyoexpert.com/collections/bags-cases/products/yoyoexpert-yoyo-velvet-bag) - Color: Any; Need multiples
+
+## Clothing
+
+* [Stance Mullen 3 Pack Crew Socks](https://www.amazon.com/dp/B0BFFVY5BH/) - Large
 
 ## Fountain Pens
 
