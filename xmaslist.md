@@ -21,7 +21,7 @@
 * [Birmingham Pens Ink - Atlantic Seaweed 30mL](https://www.birminghampens.com/collections/everlasting-ink/products/atlantic-seaweed)
 * [Birmingham Pens Ink - Pincushion Moss 30mL](https://www.birminghampens.com/collections/everlasting-ink/products/pincushion-moss)
 
-## Comics/Managa
+## Comics/Manga
 
 * [Fullmetal Alchemist: Fullmetal Edition, Vol. 6](https://www.amazon.com/Fullmetal-Alchemist-Vol-6/dp/1421599880/) by Hiromu Arakawa
 
