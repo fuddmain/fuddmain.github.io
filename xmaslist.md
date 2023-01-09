@@ -4,7 +4,6 @@
 
 * [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
 * [Audubon Bird Call](https://www.amazon.com/dp/B005L8Y4JY/)
-* [Stirling Engine](https://www.amazon.com/dp/B008JOKO1O/)
 * [Orbital - TPSK - Titanium Precision Screwdriver Kit](https://countycomm.com/collections/tools/products/orbital-tpsk-titanium-precision-screwdriver-kit)
 
 ## Yo-yo
@@ -22,8 +21,6 @@
 * [Birmingham Pens Ink - Pincushion Moss 30mL](https://www.birminghampens.com/collections/everlasting-ink/products/pincushion-moss)
 
 ## Comics/Manga
-
-* [Fullmetal Alchemist: Fullmetal Edition, Vol. 6](https://www.amazon.com/Fullmetal-Alchemist-Vol-6/dp/1421599880/) by Hiromu Arakawa
 
 ## Books
 
