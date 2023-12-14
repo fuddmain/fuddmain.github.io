@@ -24,7 +24,6 @@
 
 ## Books
 
-* [Whittling for Beginners](https://www.amazon.com/dp/1638784337/)
 * [The New Artisan Bread in Five Minutes a Day](https://www.amazon.com/dp/125001828)
 * [Bring the Noise: The Jürgen Klopp Story](https://www.amazon.com/Bring-Noise-J%C3%BCrgen-Klopp-Story/dp/1568589573/) by Raphael Honigstein
 * [MetaMaus: A Look Inside a Modern Classic, Maus](http://a.co/9fPPbio) by Art Spiegelman
