@@ -19,6 +19,7 @@
 
 ## Fountain Pens
 
+* [Kakimori Ink - 05 Kurun](https://endlesspens.com/products/kakimori-ink-bottle-35-ml-pigment-ink-standard-cap?variant=42673260134576)
 * [Bock #6 Cutlass Nib](https://allinthenib.com/products/bock-6-cutlass)
 * [Birmingham Pens Ink - Atlantic Seaweed 30mL](https://www.birminghampens.com/collections/everlasting-ink/products/atlantic-seaweed)
 * [Birmingham Pens Ink - Pincushion Moss 30mL](https://www.birminghampens.com/collections/everlasting-ink/products/pincushion-moss)
