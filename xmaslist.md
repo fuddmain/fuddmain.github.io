@@ -2,6 +2,7 @@
 
 ## Misc
 
+* [Liverpool FC Flag - 5 x 3](https://www.amazon.com/dp/B07D9T2WWW/)
 * [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
 * [Audubon Bird Call](https://www.amazon.com/dp/B005L8Y4JY/)
 * [Orbital - TPSK - Titanium Precision Screwdriver Kit](https://countycomm.com/collections/tools/products/orbital-tpsk-titanium-precision-screwdriver-kit)
@@ -17,6 +18,9 @@
 
 ## Clothing
 
+* [Stance Troubled Crew Socks - Bart Simpson](https://www.amazon.com/dp/B0B5T77CN1/) - Size: Large
+* [Stance Crew Myrtle Socks [3 Pack]](https://www.amazon.com/dp/B08R2MRGBL/) - Size: Large
+
 ## Fountain Pens
 
 * [Kakimori Ink - 05 Kurun](https://endlesspens.com/products/kakimori-ink-bottle-35-ml-pigment-ink-standard-cap?variant=42673260134576)
@@ -26,9 +30,11 @@
 
 ## Comics/Manga
 
+* [Fullmetal Alchemist: Fullmetal Edition, Vol. 7](https://www.amazon.com/dp/1421599899/) - Hardcover
+
 ## Books
 
-* [The New Artisan Bread in Five Minutes a Day](https://www.amazon.com/dp/125001828)
+* [The New Artisan Bread in Five Minutes a Day](https://www.amazon.com/dp/1250018285/)
 * [Bring the Noise: The Jürgen Klopp Story](https://www.amazon.com/Bring-Noise-J%C3%BCrgen-Klopp-Story/dp/1568589573/) by Raphael Honigstein
 * [MetaMaus: A Look Inside a Modern Classic, Maus](http://a.co/9fPPbio) by Art Spiegelman
 
