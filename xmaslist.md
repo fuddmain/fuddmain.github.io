@@ -2,7 +2,7 @@
 
 ## Misc
 
-* [Airod Pro Case](https://www.amazon.com/dp/B089ZXH1FW/)
+* [Airpod Pro Case](https://www.amazon.com/dp/B089ZXH1FW/)
 * [Liverpool FC Flag - 5 x 3](https://www.amazon.com/dp/B07D9T2WWW/)
 * [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
 * [Audubon Bird Call](https://www.amazon.com/dp/B005L8Y4JY/)
