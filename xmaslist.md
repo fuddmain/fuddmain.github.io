@@ -23,6 +23,7 @@
 
 ## Fountain Pens
 
+* [Matte Blue & Natural INK Fountain Pen](https://karaskustoms.com/product/matte-blue-natural-ink-special-release/#select-nib) - Nib: Steel Broad #6
 * [Ultra Black Modal Pen](https://karaskustoms.com/product/ultra-black-modal/)
 * [Bolt Action Pen - Titanium DLC Black](https://bigidesign.com/collections/pens/products/bolt-action-pen)
 * [Kakimori Ink - 05 Kurun](https://endlesspens.com/products/kakimori-ink-bottle-35-ml-pigment-ink-standard-cap?variant=42673260134576)
