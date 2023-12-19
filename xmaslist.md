@@ -10,9 +10,10 @@
 
 ## Yo-yo
 
-* [Fat Tire 20/20 Yo-Yo](https://shop.yoyoexpert.com/collections/one-drop-yoyos/products/fat-tire-20-20-yoyo-by-one-drop-yoyos?variant=43090787500222) - Color: Clear
-* [Diorama Yo-Yo](https://shop.yoyoexpert.com/collections/one-drop-yoyos/products/diorama-yoyo-by-one-drop?variant=43156779827390) - Color: Clear
+* [One Drop Fat Tire 20/20 Yo-Yo](https://shop.yoyoexpert.com/collections/one-drop-yoyos/products/fat-tire-20-20-yoyo-by-one-drop-yoyos?variant=43090787500222) - Color: Clear
+* [One Drop Diorama Yo-Yo](https://shop.yoyoexpert.com/collections/one-drop-yoyos/products/diorama-yoyo-by-one-drop?variant=43156779827390) - Color: Clear
 * [The Weekender Yo-Yo](https://doctorpopular.com/shop/the-weekender-yo-yo/) - Color: Purple, Clear
+* [One Drop Reboot Yo-Yo](https://shop.yoyoexpert.com/collections/one-drop-yoyos/products/reboot-yoyo-by-one-drop?variant=43090821939390) - Colors: Green, Orange, Clear
 * [YoYoStringLab Nytro String](https://shop.yoyoexpert.com/collections/yo-yo-string/products/nytro-string-by-yoyostringlabs) - 5 pack; Color: Neon Orange; Multiple Please
 * [YYF Center Trac Bearing](https://shop.yoyoexpert.com/collections/yo-yo-bearings/products/center-trac-yoyo-bearing?variant=19201959364) - Type X - Size C - 10 Ball Bearing; Multiple Please
 * [YoYoExpert Velvet Bag](https://shop.yoyoexpert.com/collections/bags-cases/products/yoyoexpert-yoyo-velvet-bag) - Color: Any; Need multiples
