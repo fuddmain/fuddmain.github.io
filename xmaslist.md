@@ -2,6 +2,8 @@
 
 ## Misc
 
+* [Blackstone Silicone Griddle Spatula Mat](https://www.amazon.com/Blackstone-4222-Silicone-Countertop-Heat-Resistant/dp/B09R52P1FW)
+* [Blackstone Griddle Screen Block](https://www.amazon.com/Stainless-Fighter-Falling-Cooking-Accessories/dp/B0B8SN56NQ/)
 * [Airpod Pro Case](https://www.amazon.com/dp/B089ZXH1FW/)
 * [Liverpool FC Flag - 5 x 3](https://www.amazon.com/dp/B07D9T2WWW/)
 * [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
