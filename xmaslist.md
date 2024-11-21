@@ -7,21 +7,17 @@
 * [Liverpool FC Flag - 5 x 3](https://www.amazon.com/dp/B07D9T2WWW/)
 * [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
 * [Audubon Bird Call](https://www.amazon.com/dp/B005L8Y4JY/)
-* [Orbital - TPSK - Titanium Precision Screwdriver Kit](https://countycomm.com/collections/tools/products/orbital-tpsk-titanium-precision-screwdriver-kit)
 
 ## Yo-yo
 
-* [One Drop Diorama Yo-Yo](https://shop.yoyoexpert.com/collections/one-drop-yoyos/products/diorama-yoyo-by-one-drop?variant=43156779827390) - Color: Clear
 * [One Drop Reboot Yo-Yo](https://shop.yoyoexpert.com/collections/one-drop-yoyos/products/reboot-yoyo-by-one-drop?variant=43090821939390) - Colors: Green, Orange, Clear
 * [YoYoStringLab Nytro String](https://shop.yoyoexpert.com/collections/yo-yo-string/products/nytro-string-by-yoyostringlabs) - 5 pack; Color: Neon Orange; Multiple Please
-* [YYF Center Trac Bearing](https://shop.yoyoexpert.com/collections/yo-yo-bearings/products/center-trac-yoyo-bearing?variant=19201959364) - Type X - Size C - 10 Ball Bearing; Multiple Please
 * [YoYoExpert Velvet Bag](https://shop.yoyoexpert.com/collections/bags-cases/products/yoyoexpert-yoyo-velvet-bag) - Color: Any; Need multiples
 
 ## Clothing
 
 ## Fountain Pens
 
-* [Ultra Black Modal Pen](https://karaskustoms.com/product/ultra-black-modal/)
 * [Bock #6 Cutlass Nib](https://allinthenib.com/products/bock-6-cutlass)
 
 ## Comics/Manga
