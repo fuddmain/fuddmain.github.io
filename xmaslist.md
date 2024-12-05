@@ -2,12 +2,12 @@
 
 ## Misc
 
+* [The Dead Catch V2 - EDC Bottle Opener](https://www.etsy.com/listing/1418828214/limited-the-dead-catch-v2-edc-bottle?ref=user_profile&frs=1&pro=1&variation0=3301868010&variation1=3316409327) - Material: Titanium; Finish: Heat Color
 * [Blackstone Silicone Griddle Spatula Mat](https://www.amazon.com/Blackstone-4222-Silicone-Countertop-Heat-Resistant/dp/B09R52P1FW)
 * [Blackstone Griddle Screen Block](https://www.amazon.com/Stainless-Fighter-Falling-Cooking-Accessories/dp/B0B8SN56NQ/)
 * [Liverpool FC Flag - 5 x 3](https://www.amazon.com/dp/B07D9T2WWW/)
 * [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
 * [Audubon Bird Call](https://www.amazon.com/dp/B005L8Y4JY/)
-* [The Dead Catch V2 - EDC Bottle Opener](https://www.etsy.com/listing/1418828214/limited-the-dead-catch-v2-edc-bottle?ref=user_profile&frs=1&pro=1&variation0=3301868010&variation1=3316409327) - Material: Titanium; Finish: Heat Color
 
 ## Yo-yo
 
@@ -25,6 +25,7 @@
 
 * [Fullmetal Alchemist: Fullmetal Edition, Vol. 9](https://www.amazon.com/dp/1421599902/) by Hiromu Arakawa
 * [Fullmetal Alchemist: Fullmetal Edition, Vol. 10](https://www.amazon.com/dp/1421599929/) by Hiromu Arakawa
+* [Fullmetal Alchemist: Fullmetal Edition, Vol. 11](https://www.amazon.com/dp/1421599945/) by Hiromu Arakawa
 
 ## Books
 
