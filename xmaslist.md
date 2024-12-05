@@ -23,6 +23,9 @@
 
 ## Comics/Manga
 
+* [Fullmetal Alchemist: Fullmetal Edition, Vol. 9](https://www.amazon.com/dp/1421599902/) by Hiromu Arakawa
+* [Fullmetal Alchemist: Fullmetal Edition, Vol. 10](https://www.amazon.com/dp/1421599929/) by Hiromu Arakawa
+
 ## Books
 
 * [Bring the Noise: The Jürgen Klopp Story](https://www.amazon.com/Bring-Noise-J%C3%BCrgen-Klopp-Story/dp/1568589573/) by Raphael Honigstein
