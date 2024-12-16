@@ -39,6 +39,10 @@
 
 ## Books
 
+* [Whittling for Beginners](https://www.amazon.com/dp/1638784337/) by Emilie Rigby - Paperback
+* [Swedish Carving Techniques](https://www.amazon.com/dp/1627106731/) by Wille Sundqvist - Paperback
+* [Hello Tiny World: An Enchanting Journey into the World of Creating Terrariums](https://www.amazon.com/dp/0744099072) by Ben Newell - Hardcover
+* [Geddy Lee's Big Beautiful Book of Bass](https://www.amazon.com/Geddy-Lees-Beautiful-Book-Bass/) by Geddy Lee - Hardcover
 * [Bring the Noise: The Jürgen Klopp Story](https://www.amazon.com/Bring-Noise-J%C3%BCrgen-Klopp-Story/dp/1568589573/) by Raphael Honigstein
 
 ## Gift Certificates
