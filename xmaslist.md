@@ -3,16 +3,22 @@
 ## Misc
 
 * [Logest Mace Exercise Club](https://www.amazon.com/dp/B0B4YMC5NG/) - 3LB Set of 2
-* [The Dead Catch V2 - EDC Bottle Opener](https://www.etsy.com/listing/1418828214/limited-the-dead-catch-v2-edc-bottle?ref=user_profile&frs=1&pro=1&variation0=3301868010&variation1=3316409327) - Material: Titanium; Finish: Heat Color
+* [Angled Tip Massive Poseidon Ti-Straw](https://countycomm.com/collections/titanium-gear/products/massive-poseidon-ti-straw-ultra-lightweight-titanium?variant=20074780819526) - Style: Bent; Order by 12/17
+* [Leadbell Sonny](https://playforever.us/collections/american-muscle-cars/products/pl-vf501-lead-belly-sonny)
 * [Blackstone Silicone Griddle Spatula Mat](https://www.amazon.com/Blackstone-4222-Silicone-Countertop-Heat-Resistant/dp/B09R52P1FW)
+* [Tevaplanter](https://tevaplanter.com/products/tevaplanter) - Color: Terracotta
+* [Lionel Pennsylvania Flyer Electric O Gauge Train Set](https://www.amazon.com/Pennsylvania-Flyer-LionChief-Set-Bluetooth/)
 * [Blackstone Griddle Screen Block](https://www.amazon.com/Stainless-Fighter-Falling-Cooking-Accessories/dp/B0B8SN56NQ/)
 * [Liverpool FC Flag - 5 x 3](https://www.amazon.com/dp/B07D9T2WWW/)
 * [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
 * [Audubon Bird Call](https://www.amazon.com/dp/B005L8Y4JY/)
 
+## Nintendo
+
+* [Arco](https://www.nintendo.com/us/store/products/arco-switch/?utm_campaign=WebButton&utm_medium=web&utm_source=panic-web) - Download
+
 ## Yo-yo
 
-* [One Drop Reboot Yo-Yo](https://shop.yoyoexpert.com/collections/one-drop-yoyos/products/reboot-yoyo-by-one-drop?variant=43090821939390) - Colors: Green, Orange, Clear
 * [YoYoStringLab Nytro String](https://shop.yoyoexpert.com/collections/yo-yo-string/products/nytro-string-by-yoyostringlabs) - 5 pack; Color: Neon Orange; Multiple Please
 * [YoYoExpert Velvet Bag](https://shop.yoyoexpert.com/collections/bags-cases/products/yoyoexpert-yoyo-velvet-bag) - Color: Any; Need multiples
 
