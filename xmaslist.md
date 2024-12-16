@@ -2,6 +2,7 @@
 
 ## Misc
 
+* [Logest Mace Exercise Club](https://www.amazon.com/dp/B0B4YMC5NG/) - 3LB Set of 2
 * [The Dead Catch V2 - EDC Bottle Opener](https://www.etsy.com/listing/1418828214/limited-the-dead-catch-v2-edc-bottle?ref=user_profile&frs=1&pro=1&variation0=3301868010&variation1=3316409327) - Material: Titanium; Finish: Heat Color
 * [Blackstone Silicone Griddle Spatula Mat](https://www.amazon.com/Blackstone-4222-Silicone-Countertop-Heat-Resistant/dp/B09R52P1FW)
 * [Blackstone Griddle Screen Block](https://www.amazon.com/Stainless-Fighter-Falling-Cooking-Accessories/dp/B0B8SN56NQ/)
