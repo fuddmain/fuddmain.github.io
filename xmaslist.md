@@ -8,7 +8,7 @@
 * [Leadbelly Sonny](https://playforever.us/collections/american-muscle-cars/products/pl-vf501-lead-belly-sonny)
 * [Blackstone Silicone Griddle Spatula Mat](https://www.amazon.com/Blackstone-4222-Silicone-Countertop-Heat-Resistant/dp/B09R52P1FW)
 * [Tevaplanter](https://tevaplanter.com/products/tevaplanter) - Color: Terracotta
-* [Lionel Pennsylvania Flyer Electric O Gauge Train Set](https://www.amazon.com/Pennsylvania-Flyer-LionChief-Set-Bluetooth/)
+* [Lionel Pennsylvania Flyer Electric O Gauge Train Set](https://www.amazon.com/Pennsylvania-Flyer-LionChief-Set-Bluetooth/dp/B08WCN9Z2R/)
 * [Blackstone Griddle Screen Block](https://www.amazon.com/Stainless-Fighter-Falling-Cooking-Accessories/dp/B0B8SN56NQ/)
 * [Liverpool FC Flag - 5 x 3](https://www.amazon.com/dp/B07D9T2WWW/)
 * [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
