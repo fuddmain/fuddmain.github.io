@@ -3,6 +3,7 @@
 ## Misc
 
 * [Alpine Loop Nylon Band for Apple Watch Ultra](https://www.amazon.com/dp/B0CHRSWQNQ/) - Would like multiples; Colors: Black/Titanium, Midnight Blue/Titanium, Orange/Titanium, Dark Green/Titanium
+* [LEGO X-Wing Set 30654](https://www.amazon.com/dp/B0BRWV69XM/)
 * [Logest Mace Exercise Club](https://www.amazon.com/dp/B0B4YMC5NG/) - 3LB Set of 2
 * [Angled Tip Massive Poseidon Ti-Straw](https://countycomm.com/collections/titanium-gear/products/massive-poseidon-ti-straw-ultra-lightweight-titanium?variant=20074780819526) - Style: Bent; Order by 12/17
 * [Leadbelly Sonny](https://playforever.us/collections/american-muscle-cars/products/pl-vf501-lead-belly-sonny)
