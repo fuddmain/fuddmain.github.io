@@ -2,7 +2,6 @@
 
 ## Misc
 
-* [Alpine Loop Nylon Band for Apple Watch Ultra](https://www.amazon.com/dp/B0CHRSWQNQ/) - Would like multiples; Colors: Black/Titanium, Midnight Blue/Titanium, Orange/Titanium, Dark Green/Titanium
 * [Angled Tip Massive Poseidon Ti-Straw](https://countycomm.com/collections/titanium-gear/products/massive-poseidon-ti-straw-ultra-lightweight-titanium?variant=20074780819526) - Style: Bent; Order by 12/17
 * [Leadbelly Sonny](https://playforever.us/collections/american-muscle-cars/products/pl-vf501-lead-belly-sonny)
 * [Blackstone Silicone Griddle Spatula Mat](https://www.amazon.com/Blackstone-4222-Silicone-Countertop-Heat-Resistant/dp/B09R52P1FW)
