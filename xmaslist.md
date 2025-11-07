@@ -24,16 +24,19 @@
 
 ## Fountain Pens
 
-* [Bock #6 Cutlass Nib](https://allinthenib.com/products/bock-6-cutlass)
+* [Diamine - Forever Ink - Aqua Surf](https://a.co/d/6VebwF8)
+* [Bock #6 Cutlass Nib](https://allinthenib.com/products/bock-6-cutlass) - Size: Fine
 
 ## Comics/Manga
 
+* [Vinland Saga 12](https://a.co/d/88EOH5T) by Makoto Yukimura - Hardcover
 * [Fullmetal Alchemist: Fullmetal Edition, Vol. 9](https://www.amazon.com/dp/1421599902/) by Hiromu Arakawa
 * [Fullmetal Alchemist: Fullmetal Edition, Vol. 10](https://www.amazon.com/dp/1421599929/) by Hiromu Arakawa
 * [Fullmetal Alchemist: Fullmetal Edition, Vol. 11](https://www.amazon.com/dp/1421599945/) by Hiromu Arakawa
 
 ## Books
 
+* [Project Griddle: The Versatile Art of Grilling on a Flattop](https://a.co/d/hNDA1Tl) by Steven Raichlen - Hardcover
 * [Swedish Carving Techniques](https://www.amazon.com/dp/1627106731/) by Wille Sundqvist - Paperback
 * [Geddy Lee's Big Beautiful Book of Bass](https://www.amazon.com/Geddy-Lees-Beautiful-Book-Bass/) by Geddy Lee - Hardcover
 * [Bring the Noise: The Jürgen Klopp Story](https://www.amazon.com/Bring-Noise-J%C3%BCrgen-Klopp-Story/dp/1568589573/) by Raphael Honigstein
