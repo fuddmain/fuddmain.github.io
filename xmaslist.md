@@ -2,6 +2,7 @@
 
 ## Misc
 
+* [Magic Johnson Funko Pop!](https://a.co/d/hW1qTmC)
 * [Angled Tip Massive Poseidon Ti-Straw](https://countycomm.com/collections/titanium-gear/products/massive-poseidon-ti-straw-ultra-lightweight-titanium?variant=20074780819526) - Style: Bent; Order by 12/17
 * [Leadbelly Sonny](https://playforever.us/collections/american-muscle-cars/products/pl-vf501-lead-belly-sonny)
 * [Blackstone Silicone Griddle Spatula Mat](https://www.amazon.com/Blackstone-4222-Silicone-Countertop-Heat-Resistant/dp/B09R52P1FW)
@@ -25,6 +26,8 @@
 ## Fountain Pens
 
 * [Diamine - Forever Ink - Aqua Surf](https://a.co/d/6VebwF8)
+* [Diamine - Forever Ink - Passion Flower](https://a.co/d/4KkVCU8)
+* [Diamine - Forever Ink - Tiger Lily](https://a.co/d/4U6DEFg)
 * [Bock #6 Cutlass Nib](https://allinthenib.com/products/bock-6-cutlass) - Size: Fine
 
 ## Comics/Manga
