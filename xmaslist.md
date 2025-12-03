@@ -28,6 +28,7 @@
 * [Diamine - Forever Ink - Aqua Surf](https://a.co/d/6VebwF8)
 * [Diamine - Forever Ink - Passion Flower](https://a.co/d/4KkVCU8)
 * [Diamine - Forever Ink - Tiger Lily](https://a.co/d/4U6DEFg)
+* [Bock #6 Cursive Italic Nib](https://allinthenib.com/products/bock-6-cursive-italic) - Size: Medium
 * [Bock #6 Cutlass Nib](https://allinthenib.com/products/bock-6-cutlass) - Size: Fine
 
 ## Comics/Manga
