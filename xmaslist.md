@@ -8,10 +8,6 @@
 * [Lionel Pennsylvania Flyer Electric O Gauge Train Set](https://www.amazon.com/Pennsylvania-Flyer-LionChief-Set-Bluetooth/dp/B08WCN9Z2R/)
 * [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
 
-## Nintendo
-
-* [Arco](https://www.nintendo.com/us/store/products/arco-switch/?utm_campaign=WebButton&utm_medium=web&utm_source=panic-web) - Download
-
 ## Yo-yo
 
 * [YoYoStringLab Nytro String](https://shop.yoyoexpert.com/collections/yo-yo-string/products/nytro-string-by-yoyostringlabs) - 5 pack; Color: Neon Orange; Multiple Please
