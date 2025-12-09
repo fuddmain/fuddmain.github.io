@@ -3,6 +3,7 @@
 ## Misc
 
 * [Magic Johnson Funko Pop!](https://a.co/d/hW1qTmC)
+* [Liverpool Decals](https://a.co/d/gCD1tee)
 * [Angled Tip Massive Poseidon Ti-Straw](https://countycomm.com/collections/titanium-gear/products/massive-poseidon-ti-straw-ultra-lightweight-titanium?variant=20074780819526) - Style: Bent; Order by 12/17
 * [Blackstone Silicone Griddle Spatula Mat](https://www.amazon.com/Blackstone-4222-Silicone-Countertop-Heat-Resistant/dp/B09R52P1FW)
 * [Lionel Pennsylvania Flyer Electric O Gauge Train Set](https://www.amazon.com/Pennsylvania-Flyer-LionChief-Set-Bluetooth/dp/B08WCN9Z2R/)
@@ -23,8 +24,10 @@
 * [Diamine - Forever Ink - Aqua Surf](https://a.co/d/6VebwF8)
 * [Diamine - Forever Ink - Passion Flower](https://a.co/d/4KkVCU8)
 * [Diamine - Forever Ink - Tiger Lily](https://a.co/d/4U6DEFg)
+* [Diamine - Forever Ink - Raven](https://a.co/d/fykD0VB)
 * [Bock #6 Cursive Italic Nib](https://allinthenib.com/products/bock-6-cursive-italic) - Size: Medium
 * [Bock #6 Cutlass Nib](https://allinthenib.com/products/bock-6-cutlass) - Size: Fine
+* [7 Elements 4 Drawer Storage Box](https://a.co/d/1QEjzkV)
 
 ## Comics/Manga
 
