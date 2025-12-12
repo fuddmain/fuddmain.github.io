@@ -9,16 +9,6 @@
 * [Lionel Pennsylvania Flyer Electric O Gauge Train Set](https://www.amazon.com/Pennsylvania-Flyer-LionChief-Set-Bluetooth/dp/B08WCN9Z2R/)
 * [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
 
-## Yo-yo
-
-* [YoYoStringLab Nytro String](https://shop.yoyoexpert.com/collections/yo-yo-string/products/nytro-string-by-yoyostringlabs) - 5 pack; Color: Neon Orange; Multiple Please
-* [YoYoExpert Velvet Bag](https://shop.yoyoexpert.com/collections/bags-cases/products/yoyoexpert-yoyo-velvet-bag) - Color: Any; Need multiples
-
-## Clothing
-
-* [Lazy One Pajama Shorts](https://www.amazon.com/dp/B09BXZV59G) - Size: XL; Color: Any darker, not white
-* [Lazy One Pajama Pants](https://www.amazon.com/dp/B0B5B68S7L?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1&psc=1) - Size: XL; Color: Mountain Bigfoot
-
 ## Fountain Pens
 
 * [Diamine - Forever Ink - Aqua Surf](https://a.co/d/6VebwF8)
@@ -45,6 +35,16 @@
 * [Swedish Carving Techniques](https://www.amazon.com/dp/1627106731/) by Wille Sundqvist - Paperback
 * [Geddy Lee's Big Beautiful Book of Bass](https://www.amazon.com/Geddy-Lees-Beautiful-Book-Bass/) by Geddy Lee - Hardcover
 * [Bring the Noise: The Jürgen Klopp Story](https://www.amazon.com/Bring-Noise-J%C3%BCrgen-Klopp-Story/dp/1568589573/) by Raphael Honigstein
+
+## Clothing
+
+* [Lazy One Pajama Shorts](https://www.amazon.com/dp/B09BXZV59G) - Size: XL; Color: Any darker, not white
+* [Lazy One Pajama Pants](https://www.amazon.com/dp/B0B5B68S7L?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1&psc=1) - Size: XL; Color: Mountain Bigfoot
+
+## Yo-yo
+
+* [YoYoStringLab Nytro String](https://shop.yoyoexpert.com/collections/yo-yo-string/products/nytro-string-by-yoyostringlabs) - 5 pack; Color: Neon Orange; Multiple Please
+* [YoYoExpert Velvet Bag](https://shop.yoyoexpert.com/collections/bags-cases/products/yoyoexpert-yoyo-velvet-bag) - Color: Any; Need multiples
 
 ## Gift Certificates
 
