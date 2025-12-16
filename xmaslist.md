@@ -4,9 +4,7 @@
 
 * [Magic Johnson Funko Pop!](https://a.co/d/hW1qTmC)
 * [Liverpool Decals](https://a.co/d/gCD1tee)
-* [Blackstone Silicone Griddle Spatula Mat](https://www.amazon.com/Blackstone-4222-Silicone-Countertop-Heat-Resistant/dp/B09R52P1FW)
 * [Lionel Pennsylvania Flyer Electric O Gauge Train Set](https://www.amazon.com/Pennsylvania-Flyer-LionChief-Set-Bluetooth/dp/B08WCN9Z2R/)
-* [7 Foot Mobility Stick](https://stickmobility.com/collections/mobility-sticks/products/individual-sticks?variant=37269665808552)
 
 ## Fountain Pens
 
