@@ -36,7 +36,6 @@
 ## Clothing
 
 * [Lazy One Pajama Shorts](https://www.amazon.com/dp/B09BXZV59G) - Size: XL; Color: Any darker, not white
-* [Lazy One Pajama Pants](https://www.amazon.com/dp/B0B5B68S7L?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1&psc=1) - Size: XL; Color: Mountain Bigfoot
 
 ## Yo-yo
 
