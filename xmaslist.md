@@ -2,6 +2,7 @@
 
 ## Misc
 
+* [Bodum 34oz French Press Coffee Maker](https://a.co/d/3CQMgy0)
 * [Magic Johnson Funko Pop!](https://a.co/d/hW1qTmC)
 * [Liverpool Decals](https://a.co/d/gCD1tee)
 * [Lionel Pennsylvania Flyer Electric O Gauge Train Set](https://www.amazon.com/Pennsylvania-Flyer-LionChief-Set-Bluetooth/dp/B08WCN9Z2R/)
