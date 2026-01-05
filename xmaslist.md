@@ -2,9 +2,7 @@
 
 ## Misc
 
-* [Bodum 34oz French Press Coffee Maker](https://a.co/d/3CQMgy0)
 * [Magic Johnson Funko Pop!](https://a.co/d/hW1qTmC)
-* [Liverpool Decals](https://a.co/d/gCD1tee)
 * [Lionel Pennsylvania Flyer Electric O Gauge Train Set](https://www.amazon.com/Pennsylvania-Flyer-LionChief-Set-Bluetooth/dp/B08WCN9Z2R/)
 
 ## Fountain Pens
@@ -13,14 +11,10 @@
 * [Diamine - Forever Ink - Passion Flower](https://a.co/d/4KkVCU8)
 * [Diamine - Forever Ink - Tiger Lily](https://a.co/d/4U6DEFg)
 * [Diamine - Forever Ink - Raven](https://a.co/d/fykD0VB)
-* [Bock #6 Cursive Italic Nib](https://allinthenib.com/products/bock-6-cursive-italic) - Size: Medium
 * [Bock #6 Cutlass Nib](https://allinthenib.com/products/bock-6-cutlass) - Size: Fine
-* [7 Elements 4 Drawer Storage Box](https://a.co/d/1QEjzkV)
 
 ## Comics/Manga
 
-* [Vinland Saga 12](https://a.co/d/88EOH5T) by Makoto Yukimura - Hardcover
-* [Fullmetal Alchemist: Fullmetal Edition, Vol. 9](https://www.amazon.com/dp/1421599902/) by Hiromu Arakawa
 * [Fullmetal Alchemist: Fullmetal Edition, Vol. 10](https://www.amazon.com/dp/1421599929/) by Hiromu Arakawa
 * [Fullmetal Alchemist: Fullmetal Edition, Vol. 11](https://www.amazon.com/dp/1421599945/) by Hiromu Arakawa
 
@@ -28,7 +22,6 @@
 
 * [Project Griddle: The Versatile Art of Grilling on a Flattop](https://a.co/d/hNDA1Tl) by Steven Raichlen - Hardcover
 * [The Great American Burger Book](https://a.co/d/fyxCvq9) by George Motz - Hardcover
-* [The Meathead Method](https://a.co/d/6kYMf6T) by Meathead Goldwyn - Hardcover
 * [The Ultimate Liverpool F.C. Trivia Book](https://a.co/d/9wDSSxH) by Ray Walker - Paperback
 * [Swedish Carving Techniques](https://www.amazon.com/dp/1627106731/) by Wille Sundqvist - Paperback
 * [Geddy Lee's Big Beautiful Book of Bass](https://www.amazon.com/Geddy-Lees-Beautiful-Book-Bass/) by Geddy Lee - Hardcover
