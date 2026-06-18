@@ -20,8 +20,6 @@
 
 ## Books
 
-* [Project Griddle: The Versatile Art of Grilling on a Flattop](https://a.co/d/hNDA1Tl) by Steven Raichlen - Hardcover
-* [The Great American Burger Book](https://a.co/d/fyxCvq9) by George Motz - Hardcover
 * [The Ultimate Liverpool F.C. Trivia Book](https://a.co/d/9wDSSxH) by Ray Walker - Paperback
 * [Swedish Carving Techniques](https://www.amazon.com/dp/1627106731/) by Wille Sundqvist - Paperback
 * [Geddy Lee's Big Beautiful Book of Bass](https://www.amazon.com/Geddy-Lees-Beautiful-Book-Bass/) by Geddy Lee - Hardcover
