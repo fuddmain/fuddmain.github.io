@@ -10,7 +10,6 @@
 * [Diamine - Forever Ink - Passion Flower](https://a.co/d/4KkVCU8)
 * [Diamine - Forever Ink - Tiger Lily](https://a.co/d/4U6DEFg)
 * [Diamine - Forever Ink - Raven](https://a.co/d/fykD0VB)
-* [Bock #6 Cutlass Nib](https://allinthenib.com/products/bock-6-cutlass) - Size: Fine
 
 ## Comics/Manga
 
