@@ -7,7 +7,6 @@
 
 ## Fountain Pens
 
-* [Diamine - Forever Ink - Aqua Surf](https://a.co/d/6VebwF8)
 * [Diamine - Forever Ink - Passion Flower](https://a.co/d/4KkVCU8)
 * [Diamine - Forever Ink - Tiger Lily](https://a.co/d/4U6DEFg)
 * [Diamine - Forever Ink - Raven](https://a.co/d/fykD0VB)
